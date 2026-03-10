@@ -1,4 +1,4 @@
 ### Let's build ✨
 
 - 🤝 I’m looking to collaborate
-- 💬 Connect with me to discuss partnering and project needs - will@flattopventureslab.com
+- 💬 Connect with me to discuss partnering and project needs
